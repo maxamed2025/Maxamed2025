@@ -1,4 +1,4 @@
-## Hi lam maxamed yuusuf
+## Hi 👋 👋 lam maxamed yuusuf
 
 <!--
 **maxamed2025/Maxamed2025** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
