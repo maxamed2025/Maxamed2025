@@ -1,4 +1,4 @@
-other-https://www.khaledegal.com/
+other-https://maxamed2025.github.io/skills-github-pages/
 ## Hi 👋 👋 lam maxamed yuusuf
 
 <!--
